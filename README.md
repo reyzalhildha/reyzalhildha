@@ -1,4 +1,4 @@
-<img src="https://github.com/reyzalhildha/reyzalhildha.github.io/blob/main/assets/img/paint_liquid_clots_130158_3840x2160.jpg">
+<img src="https://github.com/reyzalhildha/reyzalhildha.github.io/blob/main/assets/img/Screenshot%202021-11-25%20223511.png">
 
 
 <!--
